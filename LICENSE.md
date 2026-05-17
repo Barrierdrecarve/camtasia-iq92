@@ -1,4 +1,4 @@
-# 
+# Sin prohibición Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con reverberación y procesamiento por lotes. Seguro, confiable y optimizado para
 
 
 
